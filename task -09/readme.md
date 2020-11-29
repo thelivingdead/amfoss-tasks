@@ -1,0 +1,1 @@
+This task is not done .I tried looking up YouTube vedios for spamming using javascript this is what I could find . I have never spammed anyone before so I really want to try but I couldn't find anything really relevant there . so this is the most relevant code I can find !
